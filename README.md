@@ -1,4 +1,4 @@
 # Eric Apostal
 
-**<u> Resources </u>**
+**<u> RESOURCES </u>**
 - 
